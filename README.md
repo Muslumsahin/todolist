@@ -21,5 +21,9 @@ Saygılarımla.
 
 
 
-https://github.com/Muslumsahin/todolist/assets/28905054/283f6379-3c3d-4bbc-b7a3-ce0123162593
+
+
+https://github.com/Muslumsahin/todolist/assets/28905054/f4b5db48-e037-426a-b093-7829435c2445
+
+
 
